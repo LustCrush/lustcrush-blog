@@ -1,5 +1,4 @@
 # What Changes When People Switch from Mainstream AI Chat to Niche Adult Platforms
-
 Most people do not wake up one day and decide, “I need a niche adult AI platform.”
 
 The path is usually messier.
@@ -185,6 +184,8 @@ The decision becomes:
 Mature users want tradeoffs, not slogans.
 
 ## Where LustCrush fits in that shift
+
+![LustCrush niche adult AI platform](images/lustcrush-niche-fit.jpg)
 
 LustCrush makes more sense when viewed through this “after mainstream” lens.
 
